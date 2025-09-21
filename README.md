@@ -36,7 +36,7 @@ This year, I am aiming to contribute to **open-source projects** aligned with my
 
 ## 📫 Connect with Me
 - [LinkedIn](https://www.linkedin.com/in/samatha-gajula-706183296/)
-- [Email](samathagajulaofficial@gmail.com)  
+- [Email](mailto:samathagajulaofficial@gmail.com)  
 
 ---
  ## 🌟 Seeking Opportunities
